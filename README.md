@@ -9,4 +9,4 @@ DICA: Se apertar CTRL A e executar tudo, vai ser feito tudo que é necessário p
 Corrija com amor e dedicação, confio no seu trabalho, prof!
 
 Na confiança e no amor:
-Lucas Daniel Rodrigues dos SANtos
+Lucas Daniel Rodrigues dos Santos
